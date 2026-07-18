@@ -53,7 +53,8 @@ $\color{#CA480E}{\textsf{other info}}$
  
  <div align="center">
 $\color{#f2b687}{\textsf{uuuhh Basic dni. Other than that i block freely}}$   
- </p>
+   
+$\color{#f2b687}{\textsf{As you can tell i'm a spam follower. I don't check who i follow, i'm sorry if i follow a weirdo :<}}$   
 $\color{#f2b687}{\textsf{i like talking and doing roleplays with my friends! c+h at any time, i can do any ships (as long as im comfortable with them)}}$   
  </p>
  
