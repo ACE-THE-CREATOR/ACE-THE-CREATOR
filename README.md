@@ -31,7 +31,7 @@ $${\color{#0d1117}.}$$
 <summary>$\color{#CA480E}{\textsf{BYI}}$</summary>
 
 <div align="center">
-$\color{#f2b687}{\textsf{uh uh Hi for short my name is eddie/narancia }}$ 
+$\color{#f2b687}{\textsf{uh uh Hi for short my name is eddie/luca/narancia }}$ 
 <img width="15" src="https://github.com/user-attachments/assets/21ceecb4-839c-4c31-a8fa-64ab5a0ea18e" />
 <div align="center">
 $\color{#f2b687}{\textsf{14, trans ftm (he/him) and i like drawing, writing and listening to music}}$
