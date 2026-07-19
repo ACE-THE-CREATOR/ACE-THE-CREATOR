@@ -59,7 +59,7 @@ $\color{#f2b687}{\textsf{i like talking and doing roleplays with my friends! c+h
  </p>
  
  <div align="center">
-$\color{#CA480E}{\textsf{ [sign ata !!](https://naranciaghirga.atabook.org) }}$   
+$\color{#CA480E}{\textsf{ (sign ata !!)[https://naranciaghirga.atabook.org] }}$   
  </p>
  
  
