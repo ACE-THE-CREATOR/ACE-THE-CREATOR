@@ -59,7 +59,7 @@ $\color{#f2b687}{\textsf{i like talking and doing roleplays with my friends! c+h
  </p>
  
  <div align="center">
-<a href="https://listography.com/raidante">sign ata !!</a> 
+<a href="https://naranciaghirga.atabook.org">sign ata !!</a> 
  </p>
  
  
